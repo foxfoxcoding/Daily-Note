@@ -1,3 +1,3 @@
 # NOTE
-
-to write every day life
+life is not eazy 
+do right things is more than that
